@@ -1,0 +1,1 @@
+# krovarius.dinamick.io
